@@ -1,0 +1,5 @@
+- 👋 Salut, je suis @Netkune
+- 👀 Je suis interessé par FiveM
+- 🌱 J'apprends actuellement LUA HTML PHP JS
+- 💞️ Je cherche à collaborer sur Five M
+- 📫 Comment me joindre https://discord.gg/wUHrGSBdZN
